@@ -32,4 +32,8 @@
  - دیپلم ریاضی مدرسه سعادت
  - دانشجوی مهندسی کامپیوتر دانشگاه پیام نور
 
+### ارتباط بامن :
+- ارتباط :09034524796
+- rezaeimazuma@gmail.com : ایمیل
+
 English Resume:<a href="https://rezaeimasumeh.github.io/rezaeimasumeh.github.io/"> Resume </a>
